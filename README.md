@@ -5,9 +5,10 @@
 ### 1- a bunch of class readings
 ### 2- a pen and a pencil
 ### 3- a pouch that usually carries within it my card
-### 4- a jewelry dust bag that I can put my jewelry in
-### 5- a couple of wipes
-### 6- a pair of socks
-### 7- a water bottle
-### 8- car keys
-### 9- a mint-flavored mouth spray
+### 4- a pair of socks
+### 5- a water bottle
+### 6- my student ID
+### 7- a jewelry dust bag that I can put my jewelry in
+### 8- a couple of wipes
+### 9- car keys
+### 10- a mint-flavored mouth spray
