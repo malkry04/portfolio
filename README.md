@@ -1,6 +1,6 @@
 # My Portfolio
 ### What's in my bag?
-![wimb](wimb.jpg)
+![wimb](wimb2.jpg)
 ### My bag contains all of the following items:
 ### 1- a bunch of class readings
 ### 2- a pen and a pencil
