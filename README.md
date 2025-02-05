@@ -15,4 +15,5 @@
 ### ***note: I forgot to add my phone, which is always with me (of course!)
 
 
-# Connections, S1 EP9 ("The Countdown") Brief Recap 
+# Connections, S1 EP9 ("The Countdown") Brief Recap
+![The Countdown - Connections](The Countdown - Connections.jpg)
