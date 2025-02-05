@@ -13,3 +13,6 @@
 ### 10- car keys
 ### 11- a water bottle
 ### ***note: I forgot to add my phone, which is always with me (of course!)
+
+
+# Connections, S1 EP9 ("The Countdown") Brief Recap 
